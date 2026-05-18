@@ -1,4 +1,4 @@
-# 
+# automatic bot de sniper MEV addons es el mejor bot de sniper MEV addons con verificación de contratos y take-profit. Seguro, confiable y optimizado para estrategias MEV, sniper y
 
 
 
